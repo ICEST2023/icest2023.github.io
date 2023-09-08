@@ -1,1 +1,0 @@
-# sabdulhayan.github.io
